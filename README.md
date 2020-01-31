@@ -1,1 +1,0 @@
-# gtgoldbe.github.io
